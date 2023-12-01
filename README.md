@@ -6,7 +6,7 @@
   
 - 💞️ I’m looking to collaborate on any projects or job 
   
-- 📫 How to reach me Adewaleezekiel43@gmail.com 
+- 📫 How to reach me hardelz254@gmail.com 
 
 <!---
 Hardelzs/Hardelzs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
