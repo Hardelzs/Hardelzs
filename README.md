@@ -6,7 +6,9 @@
   
 - 💞️ I’m looking to collaborate on any projects or job 
   
-- 📫 How to reach me hardelz254@gmail.com 
+- 📫 How to reach me hardelz254@gmail.com
+
+- ☕ support my work https://www.buymeacoffee.com/adewaleezee
 
 <!---
 Hardelzs/Hardelzs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
